@@ -1,5 +1,4 @@
 # Even More From the Heart
-# Even More From the Heart
 
 Even More From the Heart is the continuation of a life lived in reflection, growth, love, and loss.
 
@@ -12,6 +11,8 @@ At its core, this album is about emotional maturity. It is about loving without 
 Even More From the Heart is not louder than the albums before it. It is deeper. It reflects a man who has learned that vulnerability is not weakness, that honesty matters, and that what we leave behind is not control — but character.
 
 These are stories of reaching, learning, and becoming.
+
+# Even More From the Heart
 
 These are the song stories for the album *Even More From the Heart*.
 
@@ -26,4 +27,3 @@ These are the song stories for the album *Even More From the Heart*.
 9. [So Much For Friends](09_So_Much_For_Friends)
 10. [Still Reaching For You](10_Still_Reaching_For_You)
 11. [No One But Me](11_No_One_But_Me)
-
