@@ -8,7 +8,7 @@ These songs reflect a life lived with intention. Loving deeply. Grieving honestl
 
 # More From the Heart
 
-## Track List
+These are the song stories for the album *More From the Heart*.
 
 1. [I Did It Anyway](01-I-Did-It-Anyway)
 2. [I Will Be Your Friend](02-I-Will-Be-Your-Friend)
@@ -16,7 +16,7 @@ These songs reflect a life lived with intention. Loving deeply. Grieving honestl
 4. [More Than You See](04-More-Than-You-See)
 5. [My Baby And Me](05-My-Baby-And-Me)
 6. [She Was There](06-She-Was-There)
-7. [I’m Still Here](07-I'm-Still-Here)
+7. [I'm Still Here](07-I'm-Still-Here)
 8. [Thirty Days Apart](08-Thirty-Days-Apart)
 9. [The Weight I Carry](09-The-Weight-I-Carry)
 10. [What I Leave Behind](10-What-I-Leave-Behind)
