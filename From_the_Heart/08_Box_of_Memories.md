@@ -1,7 +1,23 @@
-“Box of Memories” is the most personal song I’ve ever written. It came from losing Maverick and leaving the hospital without him, knowing I wouldn’t have him with me again until he was cremated.
+There is a kind of grief that is hard to explain.
 
-We had already been living life with him in it. His heartbeat was recorded in a teddy bear. There were pictures of him inside his mom. He was real. He was ours. And then suddenly all that remained were two boxes. One filled with memories. One filled with him.
+It is not only the loss of a person. It is the loss of the future you had already begun living in your heart.
 
-This song is about the grief of losing not just a child, but an entire future. It’s also about how that loss changed me. I began to see the world differently. Nature spoke in ways it never had before. Compassion lived where it hadn’t before.
+When Maverick was on the way, life shifted instantly. I was no longer thinking just about myself. I was imagining birthdays, first steps, car rides, conversations, the kind of father I wanted to be. We were preparing in small, joyful ways. Collecting pieces of a life that felt certain.
 
-Maverick isn’t just a memory in a box. He’s the reason I became who I am.
+And then everything changed.
+
+After he passed during labor, what remained were keepsakes. Ultrasound photos. Items we had chosen with intention. Objects that once represented anticipation suddenly became symbols of absence. They sit in a box now, but they represent something much bigger than what they hold.
+
+This song came from sitting with that reality.
+
+It is about how a child can transform you even if you never get to raise him. How love can expand you in a matter of months. How compassion can be born out of heartbreak.
+
+Before Maverick, I moved through life differently. After him, I saw everything through a softer lens. I pay attention to details I once missed. Nature feels louder. Meaning feels deeper. Care feels instinctive.
+
+He changed me.
+
+“Box of Memories” is not only about loss. It is about what remains after loss. The way love reshapes you permanently. The way fatherhood can exist without years attached to it.
+
+Those keepsakes are not just reminders of what was taken. They are evidence of what was awakened.
+
+And that awakening never leaves.
