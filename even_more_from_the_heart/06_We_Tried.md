@@ -9,7 +9,8 @@ We both carried histories that did not disappear just because we loved each othe
 
 There was love. There was laughter. There were seasons that felt hopeful and grounded. But there were also patterns we could not seem to outgrow. We would mend what cracked, only to discover deeper fractures beneath the surface.
 
-This song is not about pointing fingers. It is about recognizing that two people can give their honest effort and still find themselves worn down by the climb. Sometimes love carries you through tragedy. Sometimes it cannot carry you past what that tragedy changes inside you.
+This song is not about pointing fingers. It is about recognizing that two people can give their honest effort and still find themselves worn down by the climb. Sometimes love carries you through tragedy. 
+Sometimes it cannot carry you past what that tragedy changes inside you.
 
 Parting was not about defeat. It was about acknowledging that staying was no longer bringing either of us peace.
 
