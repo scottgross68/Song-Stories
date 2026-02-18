@@ -7,7 +7,7 @@ Some of these songs were written in moments. Some sat quietly for years before b
 These stories exist so that anyone who finds a song can also find its context. Not for promotion. Not for algorithms. Just for understanding.
 
 If you would like to listen to the music while reading, you can find all releases here:
-[Official Music Link]([YOUR EVERGREEN FANLINK HERE](https://fanlink.tv/scottgrossofficial))
+[Official Music Link]([(https://fanlink.tv/scottgrossofficial)]
 
 The songs span multiple albums and periods of my life. They are not presented in chronological order. Life rarely is.
 
