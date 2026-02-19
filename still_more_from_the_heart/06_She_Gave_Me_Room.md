@@ -10,7 +10,7 @@ As I grew older and life became more complicated, that steadiness never changed.
 
 This song is my way of honoring that presence.
 
-Every skill I developed, every risk I took creatively, every stage I stood on — there is a thread that leads back to her encouragement. Not loud. Not attention-seeking. Just reliable.
+Every skill I developed, every risk I took creatively, every stage I stood on, there is a thread that leads back to her encouragement. Not loud. Not attention-seeking. Just reliable.
 
 Now, when I sit at a piano or reflect on the path my life has taken, I can see how much of it was made possible because she stood quietly behind me and let me find my own way.
 
