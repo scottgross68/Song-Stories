@@ -14,7 +14,7 @@ If you would like to listen to the music while reading:
 
 The songs span multiple albums and periods of my life. They are not presented in chronological order. Life rarely is.
 
-— Scott Gross
+Scott Gross
 
 ## Albums
 
