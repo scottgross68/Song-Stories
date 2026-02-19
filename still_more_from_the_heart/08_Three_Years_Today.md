@@ -1,4 +1,4 @@
-Three Years Today was written on June 20, three years after Maverick passed.
+Three Years Today was written on June 20, 2015 three years after Maverick passed.
 
 The song speaks to a kind of loss that exists even without shared memories in the traditional sense. I never heard him cry or saw him open his eyes, yet his presence changed me completely. The moment I knew he was coming, my life shifted. I became a father in a way that does not depend on time spent, but on love felt.
 
