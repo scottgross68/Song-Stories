@@ -1,4 +1,4 @@
-“Your Smile” came from meeting someone who lived a bit of a distance away, but still made an immediate impression. There was something about her presence, the way she carried herself, and the way her smile could change the energy in a moment.
+“Your Smile” came earlier in life when I met someone who lived a bit of a distance away, but still made an immediate impression. There was something about her presence, the way she carried herself, and the way her smile could change the energy in a moment.
 
 This song is about admiration and possibility. Wanting the chance to show someone who you are and what you could be if given the opportunity. It came from that quiet hope of wanting to be chosen.
 
